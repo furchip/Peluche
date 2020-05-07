@@ -1,7 +1,7 @@
 # Peluche
 Per il Bonfi :)
 
-**Pluto**
+**Zainetto Ambiguo**
 
 ![](Peluche/20200507_182032.jpg)
 
@@ -16,7 +16,7 @@ Per il Bonfi :)
 ![](Peluche/20200507_182445.jpg)
 
 
-**Rotolone**
+**Rotolone Regina**
 
 ![](Peluche/20200507_182609.jpg)
 
@@ -26,7 +26,7 @@ Per il Bonfi :)
 ![](Peluche/20200507_183156.jpg)
 
 
-**Mimi e Cocò**
+**Mimì e Cocò**
 
 ![](Peluche/20200507_183220.jpg)
 
