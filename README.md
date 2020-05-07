@@ -1,5 +1,5 @@
 # Peluche
-Per il Bonfi :)
+Per il Bonfi da Giulia Maffioli :)
 
 **Zainetto Ambiguo**
 
